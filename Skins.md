@@ -25,7 +25,7 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914283015658668092/Mania_Skin.png)
 
 # [-      #Gura (RandomSpan)](https://www.dropbox.com/s/g9o2ij593a0zwc6/-%20%20%20%20%20%20%23Gura%20%28RandomSpan%29.osk?dl=0)
-![](https://cdn.discordapp.com/attachments/780410261239627807/914254661685481492/pan_Gameplay.png)
+![](https://cdn.discordapp.com/attachments/780410261239627807/914285269266608179/Gura_Gameplay.png)
 
 # [- ! 私の気持ち](https://drive.google.com/file/d/1g-Qx8xvNDyK73AjTrTkKtxCNQN1N0HJr/view)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914263168254107678/GamePlay.png)
