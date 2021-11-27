@@ -33,8 +33,8 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 
 # Check out these Skinners. They deserve some love, and have amazing skins for all!
 # [Krizto](https://twitter.com/Krizto__)
-# https://twitter.com/shiki_gfx
-# https://twitter.com/hrkpsd
-# https://twitter.com/inflique
-# https://twitter.com/PedroEscobqr
-# https://twitter.com/bakasigma
+# [Shiki](https://twitter.com/shiki_gfx)
+# [Haruka](https://twitter.com/hrkpsd)
+# [Inflique](https://twitter.com/inflique)
+# [iSmileZ](https://twitter.com/PedroEscobqr)
+# [Sigma](https://twitter.com/bakasigma)
