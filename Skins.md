@@ -29,3 +29,12 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 
 # [- ! 私の気持ち](https://drive.google.com/file/d/1g-Qx8xvNDyK73AjTrTkKtxCNQN1N0HJr/view)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914263168254107678/GamePlay.png)
+
+
+# Check out these Skinners. They deserve some love, and have amazing skins for all!
+https://twitter.com/Krizto__
+https://twitter.com/shiki_gfx
+https://twitter.com/hrkpsd
+https://twitter.com/inflique
+https://twitter.com/PedroEscobqr
+https://twitter.com/bakasigma
