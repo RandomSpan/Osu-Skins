@@ -41,4 +41,4 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 # [iSmileZ](https://twitter.com/PedroEscobqr)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914307459269664798/screenshot094.png)
 # [Sigma](https://twitter.com/bakasigma)
-![](https://cdn.discordapp.com/attachments/780410261239627807/914309492018151465/unknown.png)
+![](https://cdn.discordapp.com/attachments/780410261239627807/914310074627928105/Sigma.png)
