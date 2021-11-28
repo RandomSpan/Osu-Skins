@@ -15,6 +15,9 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 # [« $pan » -kz](https://www.reddit.com/r/OsuSkins/comments/pa7437/pan_169_std_only_fully_animated/)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914254697899118642/pan_-kz_Gameplay.png)
 
+# [« $pan » - Elo Edit](https://drive.google.com/drive/u/1/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm)
+![](https://cdn.discordapp.com/attachments/780410261239627807/914314154884612116/screenshot097.png)
+
 # [« $pan » -Aristia](https://mega.nz/folder/aRt2yDID#RuU_BcKlGeKf_g9tt4nqPQ)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914256979789234196/screenshot084.png)
 
@@ -29,9 +32,6 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 
 # [- ! 私の気持ち](https://drive.google.com/file/d/1g-Qx8xvNDyK73AjTrTkKtxCNQN1N0HJr/view)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914263168254107678/GamePlay.png)
-
-# [« $pan » - Elo Edit](https://drive.google.com/drive/u/1/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm)
-![](https://cdn.discordapp.com/attachments/780410261239627807/914314154884612116/screenshot097.png)
 
 
 # Check out these Skinners. They deserve some love, and have amazing skins for all!
