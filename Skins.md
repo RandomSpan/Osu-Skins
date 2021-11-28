@@ -18,7 +18,7 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 # [« $pan » - Elo Edit](https://drive.google.com/drive/u/1/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914314154884612116/screenshot097.png)
 
-# [« $pan » -Aristia](https://mega.nz/folder/aRt2yDID#RuU_BcKlGeKf_g9tt4nqPQ)
+# [« $pan » -Aristia](https://drive.google.com/drive/u/1/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914256979789234196/screenshot084.png)
 
 # [« $pan » -idk](https://drive.google.com/file/d/1hm1KOyQomNyV6MEOpl_sV90vKnT8TkOe/view)
