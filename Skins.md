@@ -33,9 +33,12 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 
 # Check out these Skinners. They deserve some love, and have amazing skins for all!
 # [Krizto](https://twitter.com/Krizto__)
-![](https://cdn.discordapp.com/attachments/780410261239627807/914301660615045150/Span_Skin_Menu.mp4)
-# [Shiki](https://twitter.com/shiki_gfx)
+![](https://cdn.discordapp.com/attachments/780410261239627807/914302045832491048/screenshot089.png)
 # [Haruka](https://twitter.com/hrkpsd)
+![](https://cdn.discordapp.com/attachments/780410261239627807/914304719625801748/screenshot092.png)
 # [Inflique](https://twitter.com/inflique)
+![](https://cdn.discordapp.com/attachments/780410261239627807/914306120217145364/screenshot093.png)
 # [iSmileZ](https://twitter.com/PedroEscobqr)
+![](https://cdn.discordapp.com/attachments/780410261239627807/914307459269664798/screenshot094.png)
 # [Sigma](https://twitter.com/bakasigma)
+![](https://cdn.discordapp.com/attachments/780410261239627807/914309492018151465/unknown.png)
