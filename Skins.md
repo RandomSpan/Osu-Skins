@@ -15,6 +15,9 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 # [« $pan » -kz](https://www.reddit.com/r/OsuSkins/comments/pa7437/pan_169_std_only_fully_animated/)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914254697899118642/pan_-kz_Gameplay.png)
 
+# [« $pan » -Rohulk](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/915546355760529418/screenshot104.png)
+
 # [« $pan » - Elo Edit](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914314154884612116/screenshot097.png)
 
