@@ -24,6 +24,15 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 # [« $pan » -Aristia](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914256979789234196/screenshot084.png)
 
+# [« $pan » -Jace](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/916504145329025054/screenshot106.png)
+
+# [« $pan » -Shigetora](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/916504160860532766/screenshot107.png)
+
+# [« $pan » -Rafis](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/916504174424887306/screenshot110.png)
+
 # [« $pan » -idk](https://drive.google.com/file/d/1hm1KOyQomNyV6MEOpl_sV90vKnT8TkOe/view)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914259288296390666/screenshot086.png)
 
