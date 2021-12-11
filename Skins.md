@@ -15,6 +15,9 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 # [« $pan » -kz](https://www.reddit.com/r/OsuSkins/comments/pa7437/pan_169_std_only_fully_animated/)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914254697899118642/pan_-kz_Gameplay.png)
 
+# [« $pan » -Mania 4k](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/919228878805958726/screenshot114.png)
+
 # [« $pan » -Rohulk](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/915546355760529418/screenshot104.png)
 
@@ -38,9 +41,6 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 
 # [Span Arrows Teal](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914283015658668092/Mania_Skin.png)
-
-# [« $pan » -Mania 4k](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
-![](https://cdn.discordapp.com/attachments/780410261239627807/919228878805958726/screenshot114.png)
 
 # [-      #Gura (RandomSpan)](https://www.dropbox.com/s/g9o2ij593a0zwc6/-%20%20%20%20%20%20%23Gura%20%28RandomSpan%29.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914285269266608179/Gura_Gameplay.png)
