@@ -28,7 +28,7 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914256979789234196/screenshot084.png)
 
 # [« $pan » -Jace](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
-![](https://cdn.discordapp.com/attachments/780410261239627807/916504145329025054/screenshot106.png)
+![](https://cdn.discordapp.com/attachments/780410261239627807/921873040764203119/screenshot120.png)
 
 # [« $pan » -Shigetora](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/916504160860532766/screenshot107.png)
