@@ -37,7 +37,7 @@ Main skin made by Krizto, others to their respective creators. Or some edits I h
 ![](https://cdn.discordapp.com/attachments/780410261239627807/916504174424887306/screenshot110.png)
 
 # [« $pan » -Tekkito](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
-![](https://cdn.discordapp.com/attachments/780410261239627807/946279669177679882/screenshot145.png)
+![](https://cdn.discordapp.com/attachments/780410261239627807/968697843739148308/screenshot174.png)
 
 # [« $pan » -idk](https://drive.google.com/file/d/1hm1KOyQomNyV6MEOpl_sV90vKnT8TkOe/view)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/914259288296390666/screenshot086.png)
