@@ -10,6 +10,7 @@ My Youtube - www.youtube.com/c/randomspan
 Main skin made by Krizto, others to their respective creators. Or some edits I have made myself. 
 
 # [« $pan » Fix](https://drive.google.com/drive/u/1/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm)
+This is a new updated version of my skin as of 5/1/2022! When I'm not feeling lazy, I will update all my skin versions to this one. 
 ![](https://cdn.discordapp.com/attachments/780410261239627807/970382961805500436/screenshot187.png)
 
 # [« $pan »](https://www.reddit.com/r/OsuSkins/comments/pa7437/pan_169_std_only_fully_animated/)
