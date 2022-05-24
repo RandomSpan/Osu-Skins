@@ -22,6 +22,9 @@ This is a new updated version of my skin as of 5/1/2022! When I'm not feeling la
 # [« $pan » -Mania 4k](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/919228878805958726/screenshot114.png)
 
+# [« $pan » Creative](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/978584385773240370/screenshot228.png)
+
 # [« $pan » -Rohulk](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/915546355760529418/screenshot104.png)
 
