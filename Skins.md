@@ -22,6 +22,9 @@ This is a new updated version of my skin as of 5/1/2022! When I'm not feeling la
 # [« $pan » -Mania 4k](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/919228878805958726/screenshot114.png)
 
+# [《Oka》 Ultimate khzAzerite(Span Edit)](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/995912986617188423/unknown.png)
+
 # [Wix Japanese Goblin](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/986434026871074857/screenshot277.png)
 
