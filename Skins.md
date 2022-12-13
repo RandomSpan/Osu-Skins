@@ -23,7 +23,7 @@ This is a new updated version of my skin as of 5/1/2022! When I'm not feeling la
 ![](https://cdn.discordapp.com/attachments/780410261239627807/919228878805958726/screenshot114.png)
 
 # [- 『HowlSakura』 - Spandelier Edit](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
-![](![image](https://user-images.githubusercontent.com/76866780/207260583-410a533b-b7d8-45cb-84ee-1e1ccc6059ee.png))
+![](https://cdn.discordapp.com/attachments/780410261239627807/1052134560948813835/screenshot470.png)
 
 # [Willy x Span (Flushed)](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1002981969807814656/screenshot377.png)
