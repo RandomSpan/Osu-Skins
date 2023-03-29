@@ -3,9 +3,9 @@
 
 My Discord - https://discord.gg/NF7BDP64Sk
 
-My Twitch - https://www.twitch.tv/randomspan
+My Twitch - https://www.twitch.tv/spandelier
 
-My Youtube - www.youtube.com/c/randomspan 
+My Youtube - www.youtube.com/c/randomspan
 
 Main skin made by Krizto, others to their respective creators. Or some edits I have made myself. 
 
