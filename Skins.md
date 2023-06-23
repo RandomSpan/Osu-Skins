@@ -25,8 +25,6 @@ This is a new updated version of my skin as of 5/1/2022! When I'm not feeling la
 # [sz - Aristia Monko](https://drive.google.com/file/d/1C_EcbsgfodLbmaSgZDJRv8dObChiax2K/view?usp=drive_link)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1117339998254018610/screenshot561.png)
 
-https://drive.google.com/file/d/1C_EcbsgfodLbmaSgZDJRv8dObChiax2K/view?usp=drive_link
-
 # [- 『HowlSakura』 - (Spandelier-InstaFade)](https://drive.google.com/file/d/1PUsfwx0JH6bNixwBUSZ5DPLWkCBStw3Q/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1090766814365110272/screenshot546.png)
 
