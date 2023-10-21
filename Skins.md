@@ -7,13 +7,16 @@ My Twitch - https://www.twitch.tv/spandelier
 
 My Youtube - www.youtube.com/c/randomspan
 
-Main skin made by Krizto, others to their respective creators. Or some edits I have made myself. 
+# THESE ARE MY MAIN SKINS AS OF RIGHT NOW
 
 # [sz - Aristia Boop (Span x Swoana Edit)](https://drive.google.com/file/d/1xl0zQ7OMqAuLNYfq_MHO2t3jNQvTsYqo/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1165398041449218161/screenshot635.png)
 
-# [sz - Aristia Monko (Span Edit)](https://drive.google.com/file/d/1JataQ_Qz5qRKqjwjPDoQs3D4QNomjxwB/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/780410261239627807/1127346983036801116/screenshot580.png)
+# [boopstafade (Span x Swoana Edit)](https://drive.google.com/file/d/1E8bRTQhvNPxPXK5l-j6wPb2kdvM9CfLb/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/1165401149726269450/screenshot636.png)
+
+# THESE ARE PREVIOUS SKINS I'VE USED.
+To view all of the other skins I've ever used click here(https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=share_link)
 
 # [« $pan » Fix](https://drive.google.com/drive/u/1/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm)
 This is a new updated version of my skin as of 5/1/2022! When I'm not feeling lazy, I will update all my skin versions to this one. 
