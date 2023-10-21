@@ -10,9 +10,11 @@ My Youtube - www.youtube.com/c/randomspan
 # THESE ARE MY MAIN SKINS AS OF RIGHT NOW
 
 # [sz - Aristia Boop (Span x Swoana Edit)](https://drive.google.com/file/d/1xl0zQ7OMqAuLNYfq_MHO2t3jNQvTsYqo/view?usp=sharing)
+I edit this skin constantly, adding or changing things. This is the most up to date that I have uploaded lmao.
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1165398041449218161/screenshot635.png)
 
 # [boopstafade (Span x Swoana Edit)](https://drive.google.com/file/d/1E8bRTQhvNPxPXK5l-j6wPb2kdvM9CfLb/view?usp=sharing)
+Same for this skin.
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1165401149726269450/screenshot636.png)
 
 # THESE ARE PREVIOUS SKINS I'VE USED.
