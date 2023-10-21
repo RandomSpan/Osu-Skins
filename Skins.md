@@ -9,6 +9,12 @@ My Youtube - www.youtube.com/c/randomspan
 
 Main skin made by Krizto, others to their respective creators. Or some edits I have made myself. 
 
+# [sz - Aristia Monko (Span Edit)](https://drive.google.com/file/d/1xl0zQ7OMqAuLNYfq_MHO2t3jNQvTsYqo/view?usp=sharing)
+  ![](https://cdn.discordapp.com/attachments/780410261239627807/1165398041449218161/screenshot635.png)
+
+# [sz - Aristia Monko (Span Edit)](https://drive.google.com/file/d/1JataQ_Qz5qRKqjwjPDoQs3D4QNomjxwB/view?usp=sharing)
+  ![](https://cdn.discordapp.com/attachments/780410261239627807/1127346983036801116/screenshot580.png)
+
 # [« $pan » Fix](https://drive.google.com/drive/u/1/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm)
 This is a new updated version of my skin as of 5/1/2022! When I'm not feeling lazy, I will update all my skin versions to this one. 
 ![](https://cdn.discordapp.com/attachments/780410261239627807/970382961805500436/screenshot187.png)
@@ -21,9 +27,6 @@ This is a new updated version of my skin as of 5/1/2022! When I'm not feeling la
 
 # [« $pan » -Mania 4k](https://drive.google.com/file/d/1_p5Xwrp9Qb4NEHvl_qly-0JR78z81-2b/view?usp=share_link)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/919228878805958726/screenshot114.png)
-
-# [sz - Aristia Monko (Span Edit)](https://drive.google.com/file/d/1JataQ_Qz5qRKqjwjPDoQs3D4QNomjxwB/view?usp=sharing)
-  ![](https://cdn.discordapp.com/attachments/780410261239627807/1127346983036801116/screenshot580.png)
 
 # [- 『HowlSakura』 - (Spandelier-InstaFade)](https://drive.google.com/file/d/1PUsfwx0JH6bNixwBUSZ5DPLWkCBStw3Q/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1090766814365110272/screenshot546.png)
