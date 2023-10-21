@@ -9,7 +9,7 @@ My Youtube - www.youtube.com/c/randomspan
 
 Main skin made by Krizto, others to their respective creators. Or some edits I have made myself. 
 
-# [sz - Aristia Monko (Span Edit)](https://drive.google.com/file/d/1xl0zQ7OMqAuLNYfq_MHO2t3jNQvTsYqo/view?usp=sharing)
+# [sz - Aristia Boop (Span x Swoana Edit)](https://drive.google.com/file/d/1xl0zQ7OMqAuLNYfq_MHO2t3jNQvTsYqo/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1165398041449218161/screenshot635.png)
 
 # [sz - Aristia Monko (Span Edit)](https://drive.google.com/file/d/1JataQ_Qz5qRKqjwjPDoQs3D4QNomjxwB/view?usp=sharing)
