@@ -8,7 +8,6 @@ My Twitch - https://www.twitch.tv/spandelier
 My Youtube - www.youtube.com/c/randomspan
 
 # THESE ARE MY MAIN SKINS AS OF RIGHT NOW
-https://cdn.discordapp.com/attachments/780410261239627807/1216653253912301701/screenshot010.jpg?ex=66012ba4&is=65eeb6a4&hm=73dad2be7790f76b90ee0e7edb72f6bde77404d38e09a01cd47c8f8fb8ac16d0&
 # [-    《Vaxei x Span》 - 『 東方Project 』 Paper Touhou Project Lite -](https://drive.google.com/file/d/1qqYRQnDHIz1Sq5jlg_SHpIAncq0Knnnm/view?usp=sharing)
 I edit this skin constantly, adding or changing things. This is the most up to date that I have uploaded lmao.
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1216653253912301701/screenshot010.jpg?ex=66012ba4&is=65eeb6a4&hm=73dad2be7790f76b90ee0e7edb72f6bde77404d38e09a01cd47c8f8fb8ac16d0&)
