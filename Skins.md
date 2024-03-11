@@ -8,17 +8,23 @@ My Twitch - https://www.twitch.tv/spandelier
 My Youtube - www.youtube.com/c/randomspan
 
 # THESE ARE MY MAIN SKINS AS OF RIGHT NOW
-
-# [sz - Aristia Boop (Span x Swoana Edit)](https://drive.google.com/file/d/1xl0zQ7OMqAuLNYfq_MHO2t3jNQvTsYqo/view?usp=sharing)
+https://cdn.discordapp.com/attachments/780410261239627807/1216653253912301701/screenshot010.jpg?ex=66012ba4&is=65eeb6a4&hm=73dad2be7790f76b90ee0e7edb72f6bde77404d38e09a01cd47c8f8fb8ac16d0&
+# [-    《Vaxei x Span》 - 『 東方Project 』 Paper Touhou Project Lite -](https://drive.google.com/file/d/1qqYRQnDHIz1Sq5jlg_SHpIAncq0Knnnm/view?usp=sharing)
 I edit this skin constantly, adding or changing things. This is the most up to date that I have uploaded lmao.
-![](https://cdn.discordapp.com/attachments/780410261239627807/1165398041449218161/screenshot635.png)
+![](https://cdn.discordapp.com/attachments/780410261239627807/1216653253912301701/screenshot010.jpg?ex=66012ba4&is=65eeb6a4&hm=73dad2be7790f76b90ee0e7edb72f6bde77404d38e09a01cd47c8f8fb8ac16d0&)
 
-# [boopstafade (Span x Swoana Edit)](https://drive.google.com/file/d/1E8bRTQhvNPxPXK5l-j6wPb2kdvM9CfLb/view?usp=sharing)
+# [-    《Span》 # Re Arknights(1.2)『DT』 #-](https://drive.google.com/file/d/1EagI7W7jA_FQnCS15xUr4u1v0Ogye8Lt/view?usp=drive_link)
 Same for this skin.
-![](https://cdn.discordapp.com/attachments/780410261239627807/1165401149726269450/screenshot636.png)
+![](https://cdn.discordapp.com/attachments/780410261239627807/1216655592144244746/screenshot015.jpg?ex=66012dd1&is=65eeb8d1&hm=07c8e90428d1e1d5deb0c92ccb6e7e5b9991ee85f9a911204a06bcbb116f59f1&)
 
 # THESE ARE PREVIOUS SKINS I'VE USED.
 ### To view all of the other skins I've ever used click [here](https://drive.google.com/drive/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm?usp=share_link)
+
+# [sz - Aristia Boop (Span x Swoana Edit)](https://drive.google.com/file/d/1xl0zQ7OMqAuLNYfq_MHO2t3jNQvTsYqo/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/1165398041449218161/screenshot635.png)
+
+# [boopstafade (Span x Swoana Edit)](https://drive.google.com/file/d/1E8bRTQhvNPxPXK5l-j6wPb2kdvM9CfLb/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/780410261239627807/1165401149726269450/screenshot636.png)
 
 # [« $pan » Fix](https://drive.google.com/drive/u/1/folders/1vDGL_OhKfyZKJ4vDmcqbxEOmN4SfeSjm)
 This is a new updated version of my skin as of 5/1/2022! When I'm not feeling lazy, I will update all my skin versions to this one. 
