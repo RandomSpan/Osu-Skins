@@ -6,14 +6,18 @@ My Discord - https://discord.gg/NF7BDP64Sk
 My Twitch - https://www.twitch.tv/spandelier
 
 My Youtube - www.youtube.com/c/randomspan
-
+https://drive.google.com/file/d/1Wibt_26XzMc-Cga8KnRwmTnSlDEQ9Ho4/view?usp=drive_link
 # THESE ARE MY MAIN SKINS AS OF RIGHT NOW
+# [-    《Span-sz》 Monko Karthy](https://drive.google.com/file/d/1Wibt_26XzMc-Cga8KnRwmTnSlDEQ9Ho4/view?usp=drive_link)
+NoMod/Hardrock
+![](https://cdn.discordapp.com/attachments/780410261239627807/1220520466049925251/screenshot023.jpg?ex=660f3d43&is=65fcc843&hm=348b6e4a8ddc3a434ec5a2d305af1e96db8ce3163a6c6d1607e51f6c6dc3d1a8&)
+
 # [-    《Vaxei x Span》 - 『 東方Project 』 Paper Touhou Project Lite -](https://drive.google.com/file/d/1qqYRQnDHIz1Sq5jlg_SHpIAncq0Knnnm/view?usp=sharing)
-I edit this skin constantly, adding or changing things. This is the most up to date that I have uploaded lmao.
+NoMod/Hardrock
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1216653253912301701/screenshot010.jpg?ex=66012ba4&is=65eeb6a4&hm=73dad2be7790f76b90ee0e7edb72f6bde77404d38e09a01cd47c8f8fb8ac16d0&)
 
 # [-    《Span》 # Re Arknights(1.2)『DT』 #-](https://drive.google.com/file/d/1EagI7W7jA_FQnCS15xUr4u1v0Ogye8Lt/view?usp=drive_link)
-Same for this skin.
+DT
 ![](https://cdn.discordapp.com/attachments/780410261239627807/1216655592144244746/screenshot015.jpg?ex=66012dd1&is=65eeb8d1&hm=07c8e90428d1e1d5deb0c92ccb6e7e5b9991ee85f9a911204a06bcbb116f59f1&)
 
 # THESE ARE PREVIOUS SKINS I'VE USED.
